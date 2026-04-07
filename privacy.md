@@ -3,7 +3,7 @@
 **Snakes of Costa Rica**  
 Effective date: March 24, 2026
 
-Mayan Apps ("we", "our", or "us") built the Snakes of Costa Rica app as a free educational tool. This page informs visitors of our policies regarding the collection, use, and disclosure of personal information.
+Mayan Apps built the Snakes of Costa Rica app as an entertainment and educational tool. This page informs visitors of our policies regarding the collection, use, and disclosure of personal information.
 
 **Information We Collect**
 
@@ -38,7 +38,7 @@ mayanappsllc@gmail.com
 **Snakes of Costa Rica**  
 Fecha de vigencia: 24 de marzo de 2026
 
-Mayan Apps ("nosotros", "nuestro") desarrolló la aplicación Snakes of Costa Rica como una herramienta educativa gratuita. Esta página informa a los usuarios sobre nuestras políticas respecto a la recolección, uso y divulgación de información personal.
+Mayan Apps desarrolló la aplicación «Snakes of Costa Rica» como una herramienta educativa y de entretenimiento. Esta página informa a los visitantes sobre nuestras políticas relativas a la recopilación, el uso y la divulgación de información personal.
 
 **Información que Recolectamos**
 
